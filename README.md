@@ -13,3 +13,9 @@ Fun fact: the text on the Brazilian flag says "Ordem e progresso" ("Order and pr
 However, in some of them, the white stripe in the center of the countryball was gone due to me using some software to remove the background of the image. To fix it, I repainted it white and badly wrote just "1984" on it. This can be noticed in, for example, curlyhairrafa.png:
 
 ![Curly hair RafaX9 pfp](curlyhairrafa.png "Curly hair RafaX9 pfp")
+
+Yet another fun fact: you can make a tier list of all these images!! You can find the template here: [https://tiermaker.com/create/rafax9-pfps-18910073](https://tiermaker.com/create/rafax9-pfps-18910073). The template is up to date as of gunx9.png.
+
+My own ranking is:
+
+!["Tier rank of all RafaX9 pfps"](other_images/tierrank.png "Tier rank of all RafaX9 pfps")
