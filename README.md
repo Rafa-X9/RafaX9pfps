@@ -14,7 +14,7 @@ However, in some of them, the white stripe in the center of the countryball was 
 
 ![Curly hair RafaX9 pfp](curlyhairrafa.png "Curly hair RafaX9 pfp")
 
-Yet another fun fact: you can make a tier list of all these images!! You can find the template here: [https://tiermaker.com/create/rafax9-pfps-18910073](https://tiermaker.com/create/rafax9-pfps-18910073). The template is up to date as of gunx9.png.
+Yet another fun fact: you can make a tier list of all these images!! You can find the template here: [https://tiermaker.com/create/rafax9-pfps-18910073](https://tiermaker.com/create/rafax9-pfps-18910073). The template is up to date as of rafax0.000001.png.
 
 My own ranking is:
 
